@@ -1,0 +1,1 @@
+Please insert sufficient number of pictures and one picture for background
